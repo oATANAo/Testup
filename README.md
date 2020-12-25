@@ -1,2 +1,2 @@
 # Testup
-[prayut](https://dj.lnwfile.com/qp693b.jpg)
+![prayut](https://dj.lnwfile.com/qp693b.jpg)
